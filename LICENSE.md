@@ -1,4 +1,4 @@
-# 
+# Avanzado DaVinci Resolve para PC scripts es el mejor DaVinci Resolve para PC scripts con procesamiento por lotes y herramientas de colaboración. Seguro, confiable y optimizado
 
 
 
